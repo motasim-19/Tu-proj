@@ -1,2 +1,2 @@
 # tu-proj
-here you can to go to GoogleForm{https://docs.google.com/forms/d/1YJY8c5frvpsxlzW_ME0LpOXjZVxQ2kGCrp_fVsmBAeo/edit?usp=sharing} 
+here you can to go to GoogleForm{https://docs.google.com/forms/d/e/1FAIpQLScBJcFReYf0d-JJNTwEwIcvW3afV9j08sg7bqQn0lErVWJ3xA/viewform} 
